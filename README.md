@@ -1,5 +1,5 @@
 <h1 align="center"> ----------> Portfolio <---------- </h1>
-<h1 align="center"> ∅_∅ Aqui emcontraremos o meu portfolio pessoal aq3∅_∅ </h1>
+<h1 align="center"> ∅_∅ Aqui emcontraremos o meu portfolio pessoal ∅_∅ </h1>
 
 ### *∅_∅* Sobre mim: 
 * Estou estudando no senai de Sao Jose, tenho atualmente 16 anos e trabalho na intelbras na area de inteligencia.
