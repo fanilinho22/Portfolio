@@ -6,7 +6,7 @@
 
 * Uso a criatividade ao meu favor como ponto forte posso ser o ultimo a fazer algo mas concerteza sera algo inovador e criativo.
 
-* Tambem sou muito responsavel com compromissos e datas, nao se pode confiar em uma pessoa que nao consegue respeitar o alarme.
+* Tambem sou muito responsavel com compromissos e datas, nao se pode confiar em uma pessoa que nao consegue respeitar o propio alarme.
 
 * Flexibilidade, adptabilidade e iniciativa sao soft skills que uso e abuso no meu dia a dia.
 
